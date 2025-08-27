@@ -1,2 +1,1 @@
-# cek-seberapa-gigachad
-🗿🗿🗿😈😈😎
+clone aja
